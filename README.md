@@ -1,0 +1,5 @@
+![input](https://github.com/user-attachments/assets/533379c0-7990-474f-bb5a-f5ebff4c09f1)
+![data](https://github.com/user-attachments/assets/8d360005-d21f-42e3-856c-f47dccb0952f)
+![edit](https://github.com/user-attachments/assets/3b695380-d47c-4e45-a2a5-a1a92e8d60c0)
+![grafik](https://github.com/user-attachments/assets/813683fb-7c02-41d6-a167-0182b1d29cd9)
+![edit](https://github.com/user-attachments/assets/956ca61f-f532-41aa-be77-9774304174ad)
